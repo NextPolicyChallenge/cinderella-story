@@ -8,7 +8,7 @@ Cinderella's father dies, and the stepmother goes bad. Beginning of the whole ["
 
 Cinderella's home life goes from bad to worse.
 
-Meanwhile, the King is trying to get his son married. Throws a party. 
+Meanwhile, the King is trying to get his son married. Throws a party. Keg-stand!!
 
 Cinderella can go to the party if she finishes her chores. Mice and birds make a dress for her (it's complicated).
 
@@ -18,16 +18,22 @@ Her Fairy Godmother shows up (And I'm all like, "where have you been the last fe
 
 Small catch - this magic power wears off at midnight. (It can happen). 
 
-No problem. Cinderella goes to the ball and the Prince thinks she's pretty awesome.
+No problem. Cinderella goes to the ball and the Prince thinks she's pretty awesome. Everything you were thinking about the Prince at this point is wrong. Maybe.
 
-Dang it! Midnight. Cinderella flees. Drops a glass slipper (that doesn't shatter). Chaos. (Spoiler alert): pumpkin doesn't make it.
+Dang it! Midnight. Cinderella flees. Loses a glass slipper (that doesn't shatter). Chaos. 
 
-The King then order a medieval police line-up to find the girl who dropped the slipper.
+(Spoiler alert): pumpkin doesn't make it.
 
-Slapstic. Filler
+The King then order a medieval version of a police line-up to find the girl who dropped the slipper. This dude is really focussed on getting his son married.
+
+Slapstick. Filler.
 
 Now the shoe shatters! Typical.
 
-No problem - Cinderella has the other slipper - and it doesn't fit! JK - it fits.
+No problem - Cinderella has the other slipper - and it doesn't fit! 
+
+JK - it fits.
 
 Cinderella, Prince, Happily Ever After. 
+
+Prince become King. Obsesses about son not something something.
