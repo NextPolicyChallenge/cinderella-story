@@ -3,7 +3,7 @@ Cinderella Story
 
 ##An experiment in collaborative writing.
 
-You'll find the basic Cinderella story in [story.txt](https://github.com/NextPolicyChallenge/cinderella-story/blob/master/story.txt).
+You'll find the basic Cinderella story in [story.txt](https://github.com/NextPolicyChallenge/cinderella-story/blob/master/story.md).
 
 ##Contributing 
 
