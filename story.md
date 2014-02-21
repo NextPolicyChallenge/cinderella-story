@@ -1,10 +1,10 @@
 #Cinderella Story
 
-A long, long time ago, in a small kingdom far, far away, there lived a girl named Cinderella. 
+A long, long time ago, in a small kingdom far, far away, there lived a girl named Ella. 
 
-Cinderella's widowed father remarried a woman with two daughters of her own.
+Ella's widowed father remarried a woman with two daughters of her own.
 
-Cinderella's father dies, and the stepmother goes bad. Beginning of the whole ["evil stepmother" thing](http://www.hollywoodreporter.com/news/casey-kasem-sad-strange-family-678902). 
+Ella died six months after her father remarried. Her father, being a wealthy mad scientist, decided to save Ella. He conducted an experiment on Ella's body to resurrect her. The experiment was partially successfull as Ella did come back to life. However, she came back as a zombie. Her first act on being reanimated was to eat her father. This sad event made Ella feel bad for the rest of her life- one isn't supposed to eat your family members, after all. Ella's stepmother could not stand living with Ella after this and began to treat her badly. Ella's skin was a pasty white due to her zombie status, and she would rub cinders into her skin to darken it, leading the family to distainfully call her Cinderella. Beginning of the whole ["evil stepmother" thing](http://www.hollywoodreporter.com/news/casey-kasem-sad-strange-family-678902). 
 
 Cinderella's home life goes from bad to worse.
 
