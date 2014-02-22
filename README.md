@@ -9,7 +9,7 @@ As part of the [Next Policy Challenge](http://nextpolicychallenge.github.io/), w
 
 First thing is to [Sign Up for GitHub](https://github.com/join).
 
-After you have a GitHub account you can go straight to the [story and start editing](https://github.com/NextPolicyChallenge/cinderella-story/blob/master/story.md). Don't worry - you won't break anything (probably). 
+After you have a GitHub account you can [go straight to the story and start editing](https://github.com/NextPolicyChallenge/cinderella-story/edit/master/story.md). Don't worry - you won't break anything (probably). 
 
 But if you want to learn a bit about GitHub first, try our [beginner tutorial](https://docs.google.com/document/d/17ZZqDhD-Ax4rmfma6Hi26RTREB-ApKZHzht5TBzWdjY/edit).
 
