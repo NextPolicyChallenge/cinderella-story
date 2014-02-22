@@ -3,17 +3,17 @@ Cinderella Story
 
 ##An experiment in collaborative writing.
 
-As part of the [Next Policy Challenge](http://nextpolicychallenge.github.io/), we're launching an early-stage experiment to both illustrate (for new users) and observe (for project design purposes) how collaborative writing happens on GitHub. 
+As part of the [Next Policy Challenge](http://nextpolicychallenge.github.io/), we're launching an early-stage experiment to both illustrate (for new users) how to do document collaboration on GitHub, and observe (for project design purposes) how collaborative writing happens in practice. 
 
 ###First Time on GitHub? Don't Know Where to Start?
 
 First thing is to [Sign Up for GitHub](https://github.com/join).
 
-You can go straight to the [story](https://github.com/NextPolicyChallenge/cinderella-story/blob/master/story.md) and start editing. But if you want to learn your way around GitHub, try our [beginner tutorial](https://docs.google.com/document/d/17ZZqDhD-Ax4rmfma6Hi26RTREB-ApKZHzht5TBzWdjY/edit) first.
+After you have a GitHub account you can go straight to the [story](https://github.com/NextPolicyChallenge/cinderella-story/blob/master/story.md) and start editing. But if you want to learn your way around GitHub first, try our [beginner tutorial](https://docs.google.com/document/d/17ZZqDhD-Ax4rmfma6Hi26RTREB-ApKZHzht5TBzWdjY/edit).
 
 
 ##Help Write the Next Version of Cinderella
-If you know your way around GitHub, then help us out.
+If you already know your way around GitHub, then help us out.
 
 We're using a high-level plot summary of the basic Cinderella story for people to collaborate on. You'll find the evolving story in [story.md](https://github.com/NextPolicyChallenge/cinderella-story/blob/master/story.md). Check out the [forks](https://github.com/NextPolicyChallenge/cinderella-story/network) that are developing too to see other takes that have built on this.
 
