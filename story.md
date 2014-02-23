@@ -4,7 +4,9 @@ A long, long time ago, in a small kingdom far, far away, there lived a girl name
 
 Ella's widowed father (whose name was Terry - but that's not important) remarried a woman with two daughters of her own.
 
-Ella died six months after her father remarried. Her father, being a wealthy though mad scientist (he made his fortune not through his mad scientistry but through shrewd land speculation), decided to save Ella. And why not? He conducted an experiment on Ella's body in an attempt to resurrect her. The experiment was partially successful - Ella did come back to life. Or, rather, half-life as she came back as a zombie. 
+Ella died six months after her father remarried, in a bizarre gardening accident. The authorities said best leave it ... unsolved. (Ella's mother, by the way, had spontaneously combusted in a flash of green light).
+
+Her father, being a wealthy though mad scientist (he made his fortune not through his mad scientistry but through shrewd land speculation), decided to save Ella. And why not? He conducted an experiment on Ella's body in an attempt to resurrect her. The experiment was partially successful - Ella did come back to life. Or, rather, half-life as she came back as a zombie. 
 
 Oh, and like you've never made a mistake?
 
