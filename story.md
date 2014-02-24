@@ -16,7 +16,7 @@ The "evil stepmother" (whose name was Tina, but that's not important) was frankl
 
 Cinderella's home life goes from bad to worse.
 
-Meanwhile, the King is trying to get his son married. Son isn't interest, really. King throws a party, for his son. Tells the Prince to party like it's 1999!
+Meanwhile, the King is trying to get his son married. Son isn't interest, really. King throws a party, for his son. The Prince says he's going to party like it's 1999!
 
 Cinderella can go to the party if she finishes her chores. Mice and birds make a dress for her (it's complicated).
 
