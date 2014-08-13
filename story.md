@@ -2,7 +2,7 @@
 
 A long, long time ago, in a small kingdom far, far away, there lived a girl named Ella. 
 
-Ella's widowed father (whose name was Terry - but that's not important) remarried a woman with two daughters of her own.
+Ella's widowed father (whose name was Maury - but that's not important) remarried a woman with two daughters of her own.
 
 Ella died six months after her father remarried, in a bizarre gardening accident. The authorities said best leave it ... unsolved. (Ella's mother, by the way, had spontaneously combusted in a flash of green light several years earlier).
 
