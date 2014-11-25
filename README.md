@@ -1,6 +1,5 @@
 Cinderella Story II
 ====================
-@justinlongo 
 ##An experiment in collaborative writing.
 
 As part of the [Next Policy Challenge](http://nextpolicychallenge.github.io/), we're launching an early-stage experiment to both illustrate (for new users) how to do document collaboration on GitHub, and observe (for project design purposes) how collaborative writing happens in practice. 
