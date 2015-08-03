@@ -12,7 +12,7 @@ Oh, and like you've never made a mistake?
 
 Ella's first act on being reanimated was to eat her father. Sure, she felt bad and all - one doesn't simply eat your family members, after all. This led to a chilling in the relationship between Ella and her stepmother, and what seems the likely origins of the whole ["evil stepmother" thing](http://www.hollywoodreporter.com/news/casey-kasem-sad-strange-family-678902). 
 
-The "evil stepmother" (whose name was Tina, but that's not important) was frankly creeped out by this half-dead stepdaughter, and began to treat her badly. Ella's skin was a pasty white - you know, due to her zombie status - and she would rub cinders into her skin to darken it. This lead to the family disdainfully calling her "Cinderella". Get it? Cinder - Ella? 
+The "evil stepmother" (whose name  was Tina, but that's not important) was frankly creeped out by this half-dead stepdaughter, and began to treat her badly. Ella's skin was a pasty white - you know, due to her zombie status - and she would rub cinders into her skin to darken it. This lead to the family disdainfully calling her "Cinderella". Get it? Cinder - Ella? 
 
 Cinderella's home life goes from bad to worse.
 
